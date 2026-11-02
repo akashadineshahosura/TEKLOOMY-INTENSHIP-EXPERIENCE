@@ -1,0 +1,2 @@
+# TEKLOOMY-INTENSHIP-EXPERIENCE
+MY Internship Day 1 Report
